@@ -1,12 +1,12 @@
 <img width="902" height="902" alt="Inventor Pro 2026" src="https://github.com/user-attachments/assets/07052461-f95b-474e-adbf-b6a12303bee8" />
 
-Torrent download link :
-
-https://www.shopcom.tn/product/inventor-pro-2026-2-1/torrent-download
-
 Download link :
 
 https://www.shopcom.tn/product/inventor-pro-2026-2-1/download
+
+Torrent download link :
+
+https://www.shopcom.tn/product/inventor-pro-2026-2-1/torrent-download
 
 Purchase link :
 
